@@ -1,0 +1,1 @@
+# psikopedia.github.io-termsofservice
